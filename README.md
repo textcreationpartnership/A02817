@@ -36,11 +36,99 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The historie of graunde Amoure and la bell Pucel, called the Pastime of plesure co[n]teining the kno
+¶ The contentes of this boke.HOw graunde Amoure walked in a medowe, & met with Fame enuyronned with 
+1. ¶ To the Reader.
+
+1. To the high and mighty Prince, Henry the seuēth, by the grace of God, kyng of Englande, and of Fraunce, Lorde of Irelande. &c.
+
 #####Body#####
-The historie of graunde Amoure and la bell Pucel, called the Pastime of plesure co[n]teining the kno
+
+1. Howe graund Amour walked in a medowe, and met with Fame, enuironned with tongues of fire. Chap. i.
+
+1. Of the swete report of Fame, of the faire Lady la bel Pucel, in the tower of musike. Chap. ii.
+
+1. ¶ Howe Fame departed from graunde Amoure, and left wyth hym gouernaunce and Grace, and howe he went to the tower of doctrine. Ca. iii.
+
+1. Howe he was let in by Countenaunce the porteres, and of the maruelous buildynge of the same tower. Capitulo. iiii.
+
+1. Howe Science sent him firste to Grammer, where he was receiued by dame Congruitie. Capi. v.
+
+1. ¶ Howe he was receiued of Logyke. Capit. vi.
+
+1. ¶ Howe he was receyued of Rethoryke, and what Rethorike is. Capit. vii.
+
+1. Of the first: called Inuention. And a commendation of Poetes. Capit. viii.
+
+1. Capitu. ix.
+
+1. Capitulo. x.
+
+1. Capitu. xi.
+
+1. Capitu. xii.
+
+1. Capitulo. xiii.
+
+1. Capitu. xiiii.
+
+1. Capitu. xv.
+
+1. Capitu. xvi.
+
+1. ¶ Of the dolorous and lowly disputation, betwene la bell Pucell, and graunde Amoure. Capit xviii.
+
+1. Capitu. xix.
+
+1. ¶ Of the greate sorowe that graunde Amoure made after her departyng, and of the wordes of Councell. Capitu. xx.
+
+1. Capitu. xxi.
+
+1. Capitu. xxii.
+
+1. Capitulo. xxiii.
+
+1. Capit. xxiiii.
+
+1. Capit. xxv.
+
+1. ¶ Howe graunde Amoure came to the tower of chiualrye. Capi. xxvi.
+
+1. Capi. xxvii.
+
+1. Capi. xxviii
+
+1. Capit. xxix.
+
+1. ¶ The Supplication. Capit. xxx.
+
+1. ¶ The copye of the Letter. Capi. xxxi.
+
+1. Capit. xxxii
+
+1. ¶ Howe graunde Amoure discomfited the Gyaunt with three heades., and was receiued of three fayre Ladyes. Capi. xxxiii.
+
+1. Capit. xxxiiii.
+
+1. Capit. xxxv.
+
+1. Capi. xxxvi.
+
+1. ¶ Howe graunde Amoure discomfited the wonderfull monster of the seuen metalles, made by enchauntment. Capit. xxxvii.
+
+1. Howe graunde Amoure was receiued of la bell Pucell. Capit. xxxviii.
+
+1. ¶ Of the great mariage, betwene graunde Amoure, and labell Pucell. Capit. xxxix.
+THus as I liued, in suche pleasure gladdeInto the chamber, came full priuelyA fayre olde man, and inBUt when I thought, longest to endureDeath with his dart, arest me sodainelyObey he sayed, as ye may
+1. Capi. xlii.
+
+1. Capit. xliii.
+
+1. Capitu. xliiii.
+ANd thus as Tyme made his conclusion,Eternitie in a fayre white vestureTo the temple came, with whol
+1. ¶ The excusation of the Aucthoure. Capit. xlvi.
+
 #####Back#####
-The historie of graunde Amoure and la bell Pucel, called the Pastime of plesure co[n]teining the kno
+Imprinted at London by Iohn Waylande, dwellynge in fletestrete, at the sygne of the Sunne. ouer agay
 **Types of content**
 
   * There are 5816 **verse** lines!
